@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on **Stock Prediction**
 
-- ⚡ Fun fact **I brew my own beer!**
+- ⚡ Fun fact **I brew beers for fun!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
